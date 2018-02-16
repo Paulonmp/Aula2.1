@@ -1,3 +1,0 @@
-Metal Gear
-Mario
-Kirby
